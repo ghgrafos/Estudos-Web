@@ -1,2 +1,2 @@
 # Estudos-Web
-o conhecimento aplicado, m soluções igualitárias  humanitárias
+O conhecimento aplicado, em soluções igualitárias  humanitárias
